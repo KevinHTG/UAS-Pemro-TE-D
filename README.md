@@ -1,1 +1,0 @@
-# UAS-Pemro-TE-D
